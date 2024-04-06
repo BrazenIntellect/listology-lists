@@ -94,7 +94,7 @@ Source: http://listology.com/xavdek/list/800-top-tracks-90-2000-trance-techno-pr
 - Brad Strider - Bradley's Beat (1991)
 - Brain Bug - Nightmare (1996)
 - Brooklyn Bounce - The Theme (Of Progressive Attack) (1996)
-- Brothers Love Dubs - 1 - 800 MING (1999)](https://www.youtube.com/watch?v=-I3vl9suDk4) 
+- [Brothers Love Dubs - 1 - 800 MING (1999)](https://www.youtube.com/watch?v=-I3vl9suDk4) 
 - Byron Bogues - Gadget (1997)
 - C & J Project - Goody Gobble (1994)
 - C*Y*B - Syxtrax - Now (1993)
