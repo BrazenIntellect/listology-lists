@@ -105,6 +105,7 @@ Source: http://listology.com/xavdek/list/800-top-tracks-90-2000-trance-techno-pr
 - Carayca - Come On (1996)
 - Carlos - Rush Me (1998)
 - Carsten Fietz - Rappelkiste (1998)
+- [Cass & Slide - Opera (2000)](https://www.youtube.com/watch?v=7cGJ2RjwLbw)
 - Cass & Slide - Glad I Ate Her (2001)
 - Castle Trancelott - Indoctrinate (1995)
 - Casual Pimp - Daily Sacrifice (1997)
