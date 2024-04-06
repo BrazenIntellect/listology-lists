@@ -610,7 +610,7 @@ Source: http://listology.com/xavdek/list/800-top-tracks-90-2000-trance-techno-pr
 - Sasha & Maria ?– Be As One (1996)
 - Satoshi Tomiie - Love In Traffic (2004)
 - Scan X - Leitmotiv (1994)
-- Science Department - Repercussion (2000)
+- [Science Department - Repercussion (2000)](https://www.youtube.com/watch?v=9mxttd4KK1I)
 - Scooter - Rhapsody In E (1994)
 - Scorpio Rising - Nagasaki (1996)
 - Scott Bond vs. Solarstone - 3rd Earth (2003)
